@@ -1,1 +1,1 @@
-# rsschool-cv
+https://maratzzz.github.io/rsschool-cv/cv
